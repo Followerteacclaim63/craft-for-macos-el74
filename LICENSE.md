@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Craft for macOS automation with Craft for macOS advanced Automation: dark mode & offline access. Featuring dark mode and offline access, it's the best choice for
 
 
 
